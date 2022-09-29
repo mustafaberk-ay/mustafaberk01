@@ -2,4 +2,4 @@
 - 👀 I’m interested in computer technologies.
 - 🌱 I’m currently learning Java.
 - 💞️ I’m looking to collaborate on any software projects.
-- 📫 How to reach me @mustafaberk1907 on Instagram.
+- 📫 Reach me @mustafaberk1907 via Instagram or https://www.linkedin.com/in/mustafaberkay/ via LinkedIn.
